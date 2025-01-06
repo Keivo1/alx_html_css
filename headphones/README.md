@@ -1,1 +1,1 @@
-Here is an amazing challenge to build my skills as web developer newbie.
+Here is an amazing challenge to build my skills as web a developer newbie.
